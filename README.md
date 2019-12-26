@@ -56,6 +56,8 @@
 欢迎加入算法讨论群，这里不仅有算法和数据结构，也有各种计算机技术的讨论
 ***
 [推荐ssr机场服务-轻松科学上网](https://justmysocks.net/members/aff.php?aff=7983) 【挂梯子访问】
+
+[推荐vps](https://app.cloudcone.com/?ref=2525)
 ***
 
 **QQ群**
